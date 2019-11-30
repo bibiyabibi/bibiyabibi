@@ -1,6 +1,6 @@
-# 区块链小白书
+# 区块链小白书之逼逼呀逼逼
 
-[李笑来](http://lixiaolai.com)（著）&copy; 2019
+[逼逼呀逼逼](http://bibiyabibi.com)（逼逼）&copy; 2019
 
 -----
 
